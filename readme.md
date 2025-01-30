@@ -1,1 +1,1 @@
-d
+Ma che bel gufo spenzola da quei travi
